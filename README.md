@@ -8,10 +8,11 @@ DESCARGAR:https://nibiruanuna.wixsite.com/android-rat-spy
 DISABLE ANTIVIRUS
   DESACTIVAR ANTIVIRUS
 
-  CraxsRat-V4.9.5
+  CraxsRat-V6.7
   Brata Rat
   Spymax v4
-  Cypher RAT V3 Cracked
+  Cypher RAT V5 Cracked
+  Cypher RAT V3.5 Cracked
 
 ----------------------------------------
   DISABLE ANTIVIRUS
